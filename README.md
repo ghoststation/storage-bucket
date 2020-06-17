@@ -1,0 +1,2 @@
+# Ghoststation Wiki
+
